@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @racuhh
+- 👀 I have no idea what I'm doing here.
+- 🌱 I’m currently learning what is programming.
+- 💞️ I’m looking to collaborate ...
+- 📫 Reach me here.
